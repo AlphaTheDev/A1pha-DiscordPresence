@@ -4,4 +4,4 @@ Dette script var faktisk ikke meningen indtil jeg valgte at lege lidt med et and
 
 Discord : https://discord.gg/fJekXq5jUP
 
-https://imgur.com/a/V0RbEDX
+Showcase = https://imgur.com/a/V0RbEDX
